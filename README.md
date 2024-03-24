@@ -2,10 +2,8 @@
 
 ###
 
-<p align="left">📫 How to reach me: tanercamm@outlook.com</p>
-
+📫 How to reach me: tanercamm@outlook.com
 ###
-
 
 ###
 
