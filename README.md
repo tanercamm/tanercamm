@@ -1,4 +1,4 @@
-## Heyy 👋 How's going!
+## Heyy.. How's going! 👌
 
 📫 How to reach me: tanercamm@outlook.com
 
